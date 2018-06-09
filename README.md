@@ -1,1 +1,1 @@
-# WakeNaoki.github.io
+# Naoki Wake git page
